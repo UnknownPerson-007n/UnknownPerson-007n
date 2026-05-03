@@ -1,4 +1,4 @@
-# Hi, I'm Maaz 👋
+# Hi, I'm Mauaz Ali Shaik 👋
 
 **Full-Stack & AI Developer** · CS Student at Muffakham Jah College of Engineering & Technology, Hyderabad
 
